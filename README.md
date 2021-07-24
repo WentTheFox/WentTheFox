@@ -5,7 +5,7 @@ More information on my website: https://djdavid98.art/
 
 ## Avatar credit
 
-Current avatar by [NightyCloud](https://twitter.com/NightyCloud)
+This information is now available at the following canonical URL: https://pfp.djdavid98.art
 
 ## Distraction
 
