@@ -12,4 +12,4 @@ Why look at my code when my OCs are so much cuter?
 
 ![A light blue pony and fox standing on opposite sides of a transparent barrier, placing their feet on said barrier at the same height on their own side](https://furrycdn.org/img/view/2020/6/15/2791.png)
 
-Drawn by [DreamWeaverPony](https://twitter.com/DreamWeaverPony) - [Source](https://furbooru.org/images/2791) - Character Reference Sheets: [Fox](http://fox.djdavid98.art) / [Pony](http://oc.djdavid98.art)
+Drawn by [DreamWeaverPony](https://twitter.com/DreamWeaverPony) - [Source](https://furbooru.org/images/2791) - Character Reference Sheets: [Rexouium](http://rex.djdavid98.art) / [Fox](http://fox.djdavid98.art) / [Pony](http://oc.djdavid98.art)
