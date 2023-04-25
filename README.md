@@ -1,6 +1,6 @@
 # DJDavid98
 
-I’m a hobbyist digital artist who loves drawing animals in his free time. My personal favourite species are foxes, but I like canines in general, besides other four-legged creatures. I consider myself to be part of the larger furry community. I occasionally participate in related events to relax, or to hang out with friends.
+My name is David and I’m generally shy and introverted. I work as a professional web developer and occasionally I also draw in my free time. My personal favourite species are foxes, but I like canines in general, besides other four-legged creatures. I consider myself to be part of the broader furry community. I occasionally participate in related events to relax, or to hang out with friends.
 
 More information on my website: https://djdavid98.art/
 
@@ -8,8 +8,8 @@ Avatar credit: https://pfp.djdavid98.art
 
 ## Distraction
 
-Why look at my code when my OCs are so much cuter?
+Why look at my code when my fursona is so much cuter?
 
-![A light blue pony and fox standing on opposite sides of a transparent barrier, placing their feet on said barrier at the same height on their own side](https://furrycdn.org/img/view/2020/6/15/2791.png)
+![Digial drawing of an antropomorphics canine character with blue fur (light blue markings), cyan eyes and dark blue hair. They are wearing a blue collar attached to a leash, the end of which they are holding in their left hand, and rainbow-colored arm and leg warmers, while sitting on a ledge. They're looking at you with their mouth slighly open.](https://furrycdn.org/img/view/2023/4/12/236442.png)
 
-Drawn by [DreamWeaverPony](https://twitter.com/DreamWeaverPony) - [Source](https://furbooru.org/images/2791) - Character Reference Sheets: [Rexouium](http://rex.djdavid98.art) / [Fox](http://fox.djdavid98.art) / [Pony](http://oc.djdavid98.art)
+Artowrk by [Belvordraws](https://twitter.com/BelvorDraws) - [Source](https://twitter.com/Belvordraws/status/1646254495863562247) - Character Reference Sheets: [Rexouium](http://rex.djdavid98.art) / [Fox](http://fox.djdavid98.art)
